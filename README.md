@@ -22,6 +22,14 @@ https://cdn.lunareclipse.studio/img/projects/from-the-fog/gallery/shrine-suprise
 https://i.pinimg.com/474x/fd/a2/cf/fda2cf3e77d27da8df62ea99baf8cf6c.jpg
 https://share.google/images/stDJPBHYoytN8o3uH
 https://share.google/images/KhRdoAHChSSADCsLZ
+https://art.pixilart.com/485e4e76caee117.png
+https://media.forgecdn.net/avatars/554/428/637896461517427949.png
+https://static.vecteezy.com/system/resources/previews/046/446/811/non_2x/brick-pixel-square-pattern-checkered-with-shades-of-brown-gaming-background-vector.jpg
+https://www.vhv.rs/dpng/d/310-3109338_minecraft-pickaxe-diamond-fte-remixit-ftestickers-minecraft-diamond.png
+https://media.forgecdn.net/avatars/25/910/635782714841771712.png
+https://media.forgecdn.net/avatars/208/380/636974351846130741.png
+
+
 Police utilisé: Mojangles
 
 Utilisation d'IA:
